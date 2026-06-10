@@ -1,1 +1,0 @@
-Morphing Polychrome Square
